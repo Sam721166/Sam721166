@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I'm Sam, I love learning to code and building cool stuffs
+Hi I'm Sam, I love to code and building cool stuffs
 
 
 ## 🌐 Socials:
